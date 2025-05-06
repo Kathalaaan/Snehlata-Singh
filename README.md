@@ -1,1 +1,0 @@
-# Snehlata-Singh
